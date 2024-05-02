@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @GibranXD
 - 👀 I’m interested in Ngoding ALT TAB ALT TAB
 - 🌱 I’m currently learning Back-End
-- 📫 How to reach me : My social is available on github, you just gotta click on it
+- 📫 How to reach me : you don't
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Im terrible at school/work, but brilliant when left alone.
 
