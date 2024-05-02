@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Back-End
 - 📫 How to reach me : you don't
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Im terrible at school/work, but brilliant when left alone.
+- ⚡ Fun fact: I dont like people who do not wanna move forward, i wont look at them no matter what, life is all about progressing
 
 <!---
 GibranXD/GibranXD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
